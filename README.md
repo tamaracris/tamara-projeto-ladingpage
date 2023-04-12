@@ -1,1 +1,0 @@
-# tamara-projeto-ladingpage
